@@ -1,3 +1,6 @@
+![idle heroes pc version](https://i.imgur.com/629jctZ.png "Idle Heroes PC Download")
+
+
 Download Idle Heroes for PC
 ===========================
 
